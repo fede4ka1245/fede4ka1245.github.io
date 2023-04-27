@@ -1,0 +1,1 @@
+Nothing but my resume made via notion and hosted here: [bragin-fedor.me](https://bragin-fedor.me)
